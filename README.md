@@ -1,6 +1,6 @@
 Idrissa Djepa Creutz, french geoinformatics passionate!
 
-Masters in:
+Masters degrees in:
 * Geoinformatics (Lyon 2 and Saint-Étienne univ., ENS Lyon superior school)
 * Gender and Sport Studies (Lyon 1/Lyon 2 univ.)
 * Digital Humanities (Lyon 2 and Lyon 3 univ., ENSSIB and ENS Lyon superior schools)
