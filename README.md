@@ -7,4 +7,4 @@ Masters degrees in:
 
 Bachelor of History (Paris 1 Panthéon Sorbonne university)
 
-Swing dance teacher, folk dancer, biketourer and (hitch)hiker.
+Swing dance [teacher](https://www.shallweswinglyon.com/), OSM [contributor](https://www.openstreetmap.org/user/Idrizza), folk dancer, [bike tourer](https://www.komoot.fr/user/1046648360760/) and (hitch)hiker.
