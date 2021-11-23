@@ -1,4 +1,4 @@
-Idrissa Djepa Creutz, french geoinformatics passionate!
+French geoinformatics specialist.
 
 Masters degrees in:
 * [Geoinformatics](https://mastergeonum.org/) (Lyon 2 and Saint-Étienne univ., ENS Lyon superior school)
